@@ -11,7 +11,7 @@ Faw99 Slot adalah destinasi utama bagi pecinta game slot online yang menawarkan 
 ----------------
 
 🌍 **Website:** [Faw99](https://nirmon.my.id/)    
-📱 **Telegram:** [Faw99 Telegram]([https://nirmon.my.id/](https://t.me/Faw99game))
+📱 **Telegram:** [Faw99 Telegram](https://t.me/Faw99game/)
 
 **Keunggulan Kami**
 -------------------
